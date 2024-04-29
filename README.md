@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @grape20101
 - 👀 I’m interested in the history of germany
-- 🌱 I’m currently learning to cook food.
+- 🌱 I’m currently learning to cook food m*th.
 - 💞️ I’m looking to collaborate on pedotit
 - 📫 How to reach me gitto
 - 😄 Pronouns: 0101 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
